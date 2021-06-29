@@ -1,1 +1,1 @@
-# (Ocean)[https://ocean.lol]
+# [Ocean](https://ocean.lol)
